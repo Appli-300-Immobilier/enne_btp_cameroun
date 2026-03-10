@@ -8,7 +8,7 @@
   - Etude - Suivi - Realisation
   - Tous nos projets con?
   - 
-  - Page � Entreprise
+  - Page é Entreprise
   - 
   - BP 8084, Douala, Cameroon
   - 
